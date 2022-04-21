@@ -1,1 +1,1 @@
-The company website for Montea: [https://monetatech.net](https://monetatech.net)
+The company website for Moneta: [https://monetatech.net](https://monetatech.net)
